@@ -17,7 +17,7 @@ Fuck Lers Ros.
 
 ### Sandwiches
 I guess one could concievably want a non-vietnamese sandwich. Meh.
-* [Morty's Deli](http://www.yelp.com/biz/mortys-delicatessen-san-francisco) - Many, very good veggie sandwiches, but on a kind of a cutty block.
+* [Morty's Deli](http://www.yelp.com/biz/mortys-delicatessen-san-francisco) - Many, very good veggie sandwiches, but on kind of a cutty block.
 * [Soul Groove](http://www.yelp.com/biz/soul-groove-san-francisco) - The turntable is good, but weird hours make it hard to give this place your money.
 
 ### Other
